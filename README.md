@@ -1,3 +1,3 @@
 # SaveTheEarth
 Iron Man:
-The entire Avengers initiative was started with him. He is the undisputed leader of Team Avengers. With his scientific mind, funny talks, selfless behaviour and charismatic attitude, he will remain the favourite superhero for many people. He was ready to sacrifice himself for the better good in many cases and he finally ended up doing the same. He  might have been gone but his legacy will remain as long as the world which he saved many a time lasts.
+The entire Avengers initiative was started with him. He is the undisputed leader of Team Avengers. With his scientific mind, funny talks, selfless behaviour and charismatic attitude, he will remain the favourite superhero for many people. 
